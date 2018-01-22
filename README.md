@@ -10,7 +10,7 @@ _currently in Moscow_
 
 + HSE University
 + School of Foreign Languages
-+ Master’s programme 'Foreign Languages and Cross-cultural Communication'
++ Bachelor’s programme 'Foreign Languages and Cross-cultural Communication'
 
 ---
  #### My interests
